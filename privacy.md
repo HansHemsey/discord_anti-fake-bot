@@ -1,5 +1,5 @@
 Privacy Policy – AntiFake Bot
-Last Updated: [Date]
+Last Updated: 11/04/2025
 
 1. Data Collected
 Temporary access to:
